@@ -1,1 +1,1 @@
-# blakitblakit.github.by
+# blakitblakit
